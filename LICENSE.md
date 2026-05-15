@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced trader joe trading bot Utility | rug-pull-detection + multi-chain-support, the #1 trader joe trading bot. Includes rug-pull-detection and
 
 
 
